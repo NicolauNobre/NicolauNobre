@@ -1,4 +1,4 @@
-## Olá! Se tentou teleportar pra Namekusei como o Goku e falhou miserávelmente diferente do gênio do Goku, aproveita e da uma olhadinha no meu perfil ;)
+## Olá! Se tentou teleportar da Terra pra Namekusei e falhou miserávelmente diferente do gênio do Goku, aproveita e da uma olhadinha no meu perfil ;)
 
 
 - 🔭 Atualmente estudante de Engenharia da Computação na Universidade Federal do Rio Grande (FURG).
