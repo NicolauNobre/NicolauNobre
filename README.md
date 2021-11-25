@@ -2,7 +2,7 @@
 
 
 - 🔭 Atualmente estudante de Engenharia da Computação na Universidade Federal do Rio Grande (FURG).
-- 🌱 Atualmente aprendendo de tudo um pouco para entender meu propósito dentro da computação.
+- 🌱 Estou crescendo e aprendendo de tudo um pouco para entender meu propósito dentro da computação.
 ##
 
 <div align="center">
