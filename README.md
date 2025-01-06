@@ -9,7 +9,9 @@ Vamos construir algo incrível juntos!
 
 ### 🎓 Engenheiro da Computação pela Universidade Federal do Rio Grande (FURG).
 ### 🎖️ Certificado AWS Cloud Practitioner
+### 🎖️ Certificado AWS AI Practitioner
 ### 🎖️ Certificado AWS Developer Associate
+### 🎖️ Certificado AWS Solutions Architect Associate
 
 ##
 
